@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  <img src="https://media.licdn.com/dms/image/D4D12AQFOan67rg3q8Q/article-cover_image-shrink_720_1280/0/1693761336583?e=1715817600&v=beta&t=rGOyAplhJMx3gxqonyh_x4tbcrR2m62RVOrFg76h1Zw" width="40%">
+  <img src="https://tclxi2iwj8i303owt1pk0ub1-wpengine.netdna-ssl.com/wp-content/uploads/2017/01/17222446/giphy-17.gif" width="40%">
 </p>
 
 ## 🙋‍♂ Connect with me
