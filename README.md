@@ -1,5 +1,5 @@
 <h3 align="center">
-  JAI SHREE RAM !! This is Saurabh Kesarwani
+  JAI SHREE KRISHNA !! This is Saurabh Kesarwani
 </h3>
 
 <!-- Typing SVG by DenverCoder1 - https://github.com/DenverCoder1/readme-typing-svg -->
